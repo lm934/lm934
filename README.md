@@ -6,6 +6,6 @@
 
 💞️ I’m looking to collaborate on data-driven projects and analytics
 
-📫 How to reach me: lavanya934@gmail.com
+📫 Email: lavanya934@gmail.com, I would be happy to connect with you on LinkedIn https://www.linkedin.com/in/lavanya-mullachery/
 
 ⚡ Fun fact: I enjoy solving complex data puzzles in my free time
